@@ -6,7 +6,7 @@ i am kowshik react js dev
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ..bjbjb.
+- 🔭 I’m currently working on .mmmm
 - 🌱 I’m currently learning ...n n
 - 👯 I’m looking to collaborate on nnknk...
 - 🤔 I’m looking for help with ...
